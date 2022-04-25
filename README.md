@@ -1,5 +1,5 @@
 ### Hi there 👋
-We're Viola, we're a plural system. You can refer to us as such, using pural they/them pronouns.
+We're Viola, we're a plural system. You can refer to us as such, using plural they/them pronouns.
 
 This account is mostly here for us to write about things or make projects that for privacy reasons we don't want tied to our host.
 
